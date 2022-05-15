@@ -4,6 +4,8 @@
 
       Repo will be updated after publication :( 
       
+![image](https://user-images.githubusercontent.com/20265851/168460901-14ed76ac-7d1a-4503-bd97-8008257476ef.png)
+
 <hr>
 
 ## Introduction 
